@@ -1,5 +1,1 @@
 ![](https://komarev.com/ghpvc/?username=ciahug)
-![](https://komarev.com/ghpvc/?username=ciahug&color=orange)
-![](https://komarev.com/ghpvc/?username=ciahug&style=flat)
-![](https://komarev.com/ghpvc/?username=ciahug&label=my+food)
-![](https://komarev.com/ghpvc/?username=ciahug&abbreviated=true)
