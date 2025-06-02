@@ -1,1 +1,3 @@
-![](https://komarev.com/ghpvc/?username=ciahug)![](https://komarev.com/ghpvc/?username=ciahug&color=yellow)![](https://komarev.com/ghpvc/?username=ciahug&style=flat)![](https://komarev.com/ghpvc/?username=ciahug&label=my+food)![](https://komarev.com/ghpvc/?username=ciahug&abbreviated=true)
+hi nothing else here except for..like brief info
+
+not looking for friends explicity from ponytown sorry..idk if u try hard enough i might end up liking u..u can still talk to me if ure lucky enough to catch me ontab
