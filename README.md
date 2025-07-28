@@ -1,5 +1,3 @@
-hi i really like cuddles o likee come up to me whenev u want but im not necessarily playing ponytown to make friends..but idc u can still talk to me but beware i block freely so yeah ibblock people i rlly dont fw
+no introduction youre too late i never play this game but at the very least you might see me sitting somewhere but ill be afk and wont respond lol..interact with me with atabook but um rare chance ill see it
 
-nope nopee i dont like roblox fandoms SORRY!!! you guys suck soo bad but hey u didnt hear that from me..um also dont interact if ure a freak or a high mainetance friend SORRY!! just cant be bothered especially because im more of a low maintenance friendship person and i hate freaks..sorry we just wontt vibe if ure lik that
-
-ok thats the end bye
+open to interact with people im just a very low maintenace friend an youd probably have to add my socials instead of interacting through ponytown. dont leak my discord though ill kill you then myself
